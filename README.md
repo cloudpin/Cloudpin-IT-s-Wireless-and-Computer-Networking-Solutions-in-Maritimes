@@ -1,1 +1,1 @@
-# EYE-DA Training
+#In the next section, you’ll have a chance to watch excerpts from an actual EYE-DA evaluation. You may choose to follow along in your flipbook. We have included scoring for some of the more challenging items, specifically the ones assessed using the rubric. Please note that not all the items are covered in these video clips.
